@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 - Facebook: @https://web.facebook.com/christianjoseph768/
 - Instagram: @https://www.instagram.com/cjd_d1st/
-- Twitter: @christi56995992
+- Twitter: @https://twitter.com/christi56995992
 
 <!---
 christianjoseph769/christianjoseph769 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
